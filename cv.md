@@ -28,3 +28,9 @@
 - 2007-Present (2020) - Lawyer
 Responsibilities: provision of qualified legal assistance.
 
+
+
+
+### Education:
+* Herzen State Pedagogical University of Russia - Law degree
+
