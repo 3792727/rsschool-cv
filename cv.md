@@ -34,3 +34,9 @@ Responsibilities: provision of qualified legal assistance.
 ### Education:
 * Herzen State Pedagogical University of Russia - Law degree
 
+
+
+
+### English: 
+* Speaking/Writing - B1
+
